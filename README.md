@@ -1,4 +1,4 @@
-👋 Hola, me llamo Diana Lucio y soy estudiante del ITPA en la carrera de TIC'S⚡
+👋 Hola, me llamo Diana Lucio y soy estudiante del ITPA en la carrera de Ing. en TIC'S⚡
 
 👀 Me gusta no hacer nadota y dormir todo el tiempo que sea posible😄💞️
 
