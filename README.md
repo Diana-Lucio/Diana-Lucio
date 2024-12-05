@@ -1,6 +1,6 @@
 👋 Hola, me llamo Diana Lucio y soy estudiante del ITPA en la carrera de Ing. en TIC'S⚡
 
-👀 Me gusta no hacer nadota y dormir todo el tiempo posible😄💞️
+👀 Me gusta no hacer nadota y dormir todo el tiempo posible🥰💞️
 
 ![image](https://github.com/user-attachments/assets/950d116f-23ec-454f-814f-ca4221b6f27d)
 <!---
